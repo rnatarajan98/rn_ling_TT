@@ -1,1 +1,1 @@
-# rn_ling_TT
+Please see the attached word document for further explanation
